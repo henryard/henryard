@@ -9,6 +9,7 @@
 
 - 电报：[@henrytube](https://t.me/henrytube)
 
+- 企鹅：[1397736433](https://qm.qq.com/q/EB9FBNhOjS)
+
 - 邮箱：[henry@531108.xyz](mailto:henry@531108.xyz)
-  
-- 企鹅：[1397736433]([mailto:henry@531108.xyz](https://qm.qq.com/q/EB9FBNhOjS))
+

@@ -11,4 +11,4 @@
   
 - 企鹅：1397736433
 
-- [![Mail](https://static.is26.com/tmp/icons/gmail.svg)](mailto:henry@531108.xyz)[Mail: i@luolei.org](mailto:henry@531108.xyz)
+- [![Mail](https://static.is26.com/tmp/icons/gmail.svg)](mailto:henry@531108.xyz)[Mail: henry@531108.xyz](mailto:henry@531108.xyz)

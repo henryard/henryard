@@ -13,4 +13,4 @@
 
 📮 admin@531108.xyz
   
-[![](https://img.shields.io/badge/-@1397736433-%23181717?style=flat-square&logo=github)](https://qm.qq.com/q/EB9FBNhOjS)
+QQ: 1397736433

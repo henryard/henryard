@@ -7,7 +7,7 @@
 
 ## Contact
 
-- ✈️ 电报：[henrytube](https://t.me/henrylabs)
+- ✈️ 电报：[henrylabs](https://t.me/henrylabs)
 
 - 🐧 企鹅：[1397736433](https://qm.qq.com/q/EB9FBNhOjS)
 

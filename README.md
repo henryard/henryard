@@ -9,6 +9,6 @@
 
 - 电报：[@henrytube](https://t.me/henrytube)
 
-- 邮箱：henry@531108.xyz
+- 邮箱：[henry@531108.xyz](mailto:henry@531108.xyz)
   
 - 企鹅：1397736433

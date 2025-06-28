@@ -11,4 +11,4 @@
 
 - 🐧 企鹅：[1397736433](https://qm.qq.com/q/EB9FBNhOjS)
 
-- 📧 邮箱：[h@531108.xyz](mailto:h@531108.xyz) | [yyds@etik.com](mailto:yyds@etik.com)
+- 📧 邮箱：[h@531108.xyz](mailto:h@531108.xyz)
